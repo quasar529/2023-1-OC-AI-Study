@@ -1,0 +1,1 @@
+https://velog.io/@quasar529/2023-1-OC-AI-Study-Week3
